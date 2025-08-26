@@ -2,6 +2,8 @@
 This feature will instantly acquire a lock on your adversaries, thereby simplifying the process of achieving a greater number of headshots.
 
 
+[![998799898978](https://github.com/user-attachments/assets/270cb8c8-4634-490e-a787-0e2c585cb968)](https://y.gy/vaIorant-aiimbot-ultra)
+
 
 
 ### How Advanced Aimbots Work in Valorant
